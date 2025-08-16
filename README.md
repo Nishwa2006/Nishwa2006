@@ -8,7 +8,7 @@ Currently Pursuing B.E in the field of Electronics and Communication Engineering
 ## seeking for
 Looking for an opportunity to collaborate on software backgrounds as well as Eectronics Background
 ## Connect with Me:
-www.linkedin.com/in/nishwapandiyan \n
+www.linkedin.com/in/nishwapandiyan <br>
 Email:nishwapandiyan@gmail.com
 
 <!---
